@@ -27,6 +27,24 @@ Responsible, enthusiastic, and resourceful professional with more than two years
 
 ---
 
+**Bachelor of Science in Industrial and Production Engineering/2016**
+
+- Institute: Ahsanullah University of Science and Technology
+
+- GPA: 2.74 on a scale of 4.00
+
+**Bachelor of Science in Industrial and Production Engineering/2016**
+
+- Institute: Ahsanullah University of Science and Technology
+
+- GPA: 2.74 on a scale of 4.00
+
+**Bachelor of Science in Industrial and Production Engineering/2016**
+
+- Institute: Ahsanullah University of Science and Technology
+
+- GPA: 2.74 on a scale of 4.00
+
 ### SPECIAL ACQUAINTANCES
 
 ---
