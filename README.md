@@ -27,28 +27,28 @@ Responsible, enthusiastic, and resourceful professional with more than two years
 
 **Bachelor of Science in Industrial and Production Engineering/2016**
 
-- Institute: Ahsanullah University of Science and Technology
+- Institute: _Ahsanullah University of Science and Technology_
 
 - GPA: 2.74 on a scale of 4.00
 
-**Bachelor of Science in Industrial and Production Engineering/2016**
+**H.S.C/2010**
 
-- Institute: Ahsanullah University of Science and Technology
+- Institute: _Ispahani Public School and College_
 
-- GPA: 2.74 on a scale of 4.00
+- GPA: 4.90 on a scale of 5.00
 
-**Bachelor of Science in Industrial and Production Engineering/2016**
+**S.S.C/2008**
 
-- Institute: Ahsanullah University of Science and Technology
+- Institute: _Feni Government Pilot High School_
 
-- GPA: 2.74 on a scale of 4.00
+- GPA: 5.00 on a scale of 5.00
 
 ### SPECIAL ACQUAINTANCES
 
 ---
 
-- Departmental champion in badminton held at AUST
 - Course in "Rish Assessment of Occupational Health and Safety Issues" at COEL
+- Departmental champion in badminton held at AUST
 
 ### WORK EXPERIENCE
 
