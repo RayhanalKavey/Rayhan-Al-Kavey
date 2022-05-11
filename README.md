@@ -4,8 +4,6 @@
 
 ---
 
-- Area: South Keraniganj, Hasnabad Housing, Dhaka
-- Contant No.: +8801756582470
 - Mail: rayhanalkavey@gmail.com
 - LinkedIn: www.linkedin.com/in/rayhankavey
 
@@ -64,7 +62,7 @@ PICARD Bangladesh Ltd.(Aug 2019-Oct 2021)
 - Calculated more than 60 product's consumption, making hours, and price
 - Made more than 30 products from artwork
 
-### Interest
+### INTEREST
 
 ---
 
