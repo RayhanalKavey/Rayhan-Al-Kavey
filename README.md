@@ -31,11 +31,26 @@ Responsible, enthusiastic, and resourceful professional with more than two years
 
 ---
 
+- Departmental champion in badminton held at AUST
+- Course in "Rish Assessment of Occupational Health and Safety Issues" at COEL
+
 ### WORK EXPERIENCE
 
 ---
 
-- 👀 I’m interested in programming and web development
-- 🌱 I’m currently learning html,css,JavaScript,wordpress,and wordpress theme development.
+**Junior Officer (R&D)**
+
+PICARD Bangladesh Ltd.(Aug 2019-Oct 2021)
+
+- Promptly responded to buyer queries regarding samples via WhatsApp, email, and over phone
+- Calculated more than 60 product's consumption, making hours, and price
+- Made more than 30 products from artwork
+
+### Interest
+
+---
+
+- I’m interested in programming and web development
+- I’m currently learning html,css,JavaScript,wordpress,and wordpress theme development.
 - 💞️ I’m looking to collaborate on ...
 - 📫 Reach me with gmail rayhanalkavey@gmail.com
