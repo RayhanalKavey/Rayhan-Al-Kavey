@@ -4,13 +4,24 @@
 
 ---
 
+- Area: South Keraniganj, Hasnabad Housing, Dhaka
+- Contant No.: +8801756582470
+- Mail: rayhanalkavey@gmail.com
+- LinkedIn: www.linkedin.com/in/rayhankavey
+
 ### PROFILE
 
 ---
 
+Responsible, enthusiastic, and resourceful professional with more than two years of experience in the Research and Development department. Eager to learn new technology, to become an asset to the orgarization.
+
 ### LANGUAGE AND SKILL
 
 ---
+
+- Good knowledge of MS. Office
+- Good knowledge of HTML, CSS and JavaScript
+- Basic knowledge of PHP and Photoshop
 
 ### EDUCATION
 
